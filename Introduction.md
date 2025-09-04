@@ -78,3 +78,6 @@ Here’s a step-by-step rehearsal plan to keep your 30-second pitch smooth, natu
 ---
 
 By scripting in bite-sized chunks, using prompts, and rehearsing under realistic conditions, you’ll internalize the flow and minimize blocks. Before you know it, that 30-second pitch will roll off your tongue naturally!
+
+---
+**Inroduction according to Resume**
